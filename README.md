@@ -1,5 +1,4 @@
-## Holaaaa, I'm Alicia and welcome to my GitHub! 👋❤️‍🔥
-## 
+## Holaaaa, I'm Alicia and welcome to my GitHub! 👋❤️‍🔥 
 ## I'm learning how to code so I can pursue my goals and become a STEM girlie!
 ## Currently working as a manager, flipping burgers at McDonald's 🍔 (Mainly eating them though!)
 ## If you have any tips or tricks I would love to learn from you!
